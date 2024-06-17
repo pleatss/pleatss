@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @pleatss
+- 👀 I’m interested in front-end development / swe
+- 🌱 I’m currently learning rust / java
+- 💞️ I’m looking to collaborate on ur mom 
+- 📫 How to reach me t.me/cliffbio 
+- 😄 Pronouns: they/them 
+- ⚡ Fun fact: im ΔΘ 
